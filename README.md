@@ -1,2 +1,1 @@
-# Fersteax Modpacks
-We make modpacks.
+Yea check out Fine&Refined thats basically all i can offer
